@@ -1,0 +1,2 @@
+# Muhammadali
+Ozim haqimda
